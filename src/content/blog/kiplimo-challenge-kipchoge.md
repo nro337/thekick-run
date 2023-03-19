@@ -12,7 +12,7 @@ tags:
   - half-marathon
   - cheptegei
 ogImage: "https://images.pexels.com/photos/10313863/pexels-photo-10313863.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=1"
-description: Why Jacob Kiplimo could be the next men's marathon WR holder
+description: Why Jacob Kiplimo could be the next men's marathon world record holder
 ---
 
 Jacob Kiplimo is an absolute machine in cross country and on the roads. The men's half-marathon world record holder already has more accolades to his name than most runners achieve in their entire careers. The Ugandan prodigy and his compatriot, Joshua Cheptegei, have shown immense accomplishments and potential leading into the 2023 outdoor track and field season.
