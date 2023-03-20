@@ -32,7 +32,7 @@ I was initially motivated to make this post following [Total Running Production'
 - 10K World Championship Bronze medalist
 - 2x World XC Champion
 
-Clearly, his range is incredible on the track, on the roads, and in cross country. What you'd also notice on his [World Athletics page](https://worldathletics.org/athletes/uganda/jacob-kiplimo-14735365) is that fact that all of these accolates have been achieved by a **22 year old!**. Like Kipchoge, Jacob has shown incredible range from the 3k all the way to the half marathon over only a few years of Senior level competition. This is a serious indication that Kiplimo is just getting started on the performances he is able to deliver.
+Clearly, his range is incredible on the track, on the roads, and in cross country. What you'd also notice on his [World Athletics page](https://worldathletics.org/athletes/uganda/jacob-kiplimo-14735365) is that fact that all of these accolades have been achieved by a **22 year old!**. Like Kipchoge, Jacob has shown incredible range from the 3k all the way to the half marathon over only a few years of Senior level competition. This is a serious indication that Kiplimo is just getting started on the performances he is able to deliver.
 
 ### Comparison of Progression
 
